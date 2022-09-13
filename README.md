@@ -33,4 +33,7 @@ Bench Press is one of the most widley recommended excersises for developing your
 ![Lifting Heavier](Step7.jpg)
 
 8. Now that you know the basics of bench pressing, experiment with the angle of the bench to target different parts of the chest!
+
+
+
 ![Trying Variations](Last.jpg)
